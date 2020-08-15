@@ -3,7 +3,7 @@
 Grupo de SD 44 - Campus Taguspark
 
 
-Diogo Barradas   81975   diogocavernas.cpoc@gmail.com
+Diogo Barradas   81975   diogomiguelbarradas@gmail.com
 
 Pedro Lopes      81988   pedrocaxkampos@gmail.com
 
